@@ -1,0 +1,1 @@
+# isten_ilk_kim_ayrilacagini_tahminleme
